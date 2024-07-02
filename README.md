@@ -1,5 +1,15 @@
-<h1 align="center">Hi 👋, I'm Sumaiya Liza</h1>
-<h3 align="center">A passionate frontend developer from Bangladesh</h3>
+
+
+
+
+<h1 align="left">Hi 👋, I'm Sumaiya Liza</h1>
+<p align="center">
+  <img src='https://i.ibb.co/ChTbPzC/1719349088754.jpg' alt="Web developer" style="width:100%; max-width:600px; border-radius:10px;">
+</p>
+<h2 align="left">A Passionate Frontend Developer from Bangladesh</h3>
+Welcome to my GitHub profile! I am a dedicated front-end developer from Bangladesh, driven by a passion for crafting visually appealing and highly functional web applications. With a solid foundation in HTML, CSS, and JavaScript, I specialize in using modern frameworks like React to build responsive and intuitive user interfaces. I enjoy solving complex problems and transforming them into seamless digital experiences. My commitment to continuous learning and improvement keeps me updated with the latest industry trends and technologies. Here, you'll find a showcase of my projects and contributions, reflecting my development journey and growth.
+Let's collaborate and create something amazing together!
+
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sumaiyaliza&label=Profile%20views&color=0e75b6&style=flat" alt="sumaiyaliza" /> </p>
 
@@ -8,6 +18,7 @@
 - 💬 Ask me about **React.js , Node.js**
 
 - 📫 How to reach me **lizasumaiya81@gmail.com**
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
