@@ -20,17 +20,6 @@ Let's collaborate and create something amazing together!
 - 📫 How to reach me **lizasumaiya81@gmail.com**
 
 
-<h1 align="center">Hi 👋, I'm Sumaiya Liza</h1>
-<h3 align="center">A passionate frontend developer from Bangladesh</h3>
-
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=sumaiyaliza&label=Profile%20views&color=0e75b6&style=flat" alt="sumaiyaliza" /> </p>
-
-- 🌱 I’m currently learning **Next.js**
-
-- 💬 Ask me about **React.js , Node.js**
-
-- 📫 How to reach me **lizasumaiya81@gmail.com**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/https://www.linkedin.com/in/sumaiyaliza/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/sumaiyaliza/" height="30" width="40" /></a>
